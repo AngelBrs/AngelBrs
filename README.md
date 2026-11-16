@@ -1,5 +1,6 @@
 Sooooooo its me Angel!
 Im a basicly a "Tech nerd" as evrybody says and I make all kinds of stuff when it comes to computers and microcontrollers and allat.
+
 Located in Greece, Athens
 
 ///////////////////////
