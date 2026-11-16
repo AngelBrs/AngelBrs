@@ -1,3 +1,9 @@
-yo gng I know ur watching this.
-sooo basicly ur just stuck over a little problem I dont even care about.
-sooooo yh
+Sooooooo its me Angel!
+I make cool stuff like
+- Minecraft mods
+- Unity games
+- Python stuff
+- etc etc etc
+  ====================
+But you want to contact me you can find me (in the shadows) jk just serach up github name on social media :3
+Anyways thats cool bye bye ;3
