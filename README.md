@@ -5,5 +5,5 @@ I make cool stuff like
 - Python stuff
 - etc etc etc
   ====================
-But you want to contact me you can find me (in the shadows) jk just serach up github name on social media :3
+But you want to contact me you can find me (in the shadows) jk just search up github name on social media :3
 Anyways thats cool bye bye ;3
